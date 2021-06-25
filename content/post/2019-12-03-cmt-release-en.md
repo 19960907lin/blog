@@ -14,5 +14,5 @@ The 20 million CMTs in the forth quarter is expected to be unlocked on December 
 
 Thank you again for your warm support and supervision.
 
-Relevant Article: [CyberMiles Foundation CMTs Release](https://blog.cybermiles.io/post/20190508-cmtrelease-ena
+Relevant Article: [CyberMiles Foundation CMTs Release](https://blog.cybermiles.io/post/20190508-cmtrelease-ena)
 
